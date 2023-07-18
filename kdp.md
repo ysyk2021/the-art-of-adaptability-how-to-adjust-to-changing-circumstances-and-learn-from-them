@@ -10,9 +10,6 @@ Whether you are facing a major life change or simply looking to build your capac
 
 Thank you for joining us on this journey towards greater adaptability and personal growth.
 
-
-
-
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
 
 
