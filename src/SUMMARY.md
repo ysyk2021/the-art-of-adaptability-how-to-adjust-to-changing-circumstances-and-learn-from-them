@@ -3,7 +3,6 @@
 - [Chapter 1: Introduction](README.md)
   - [Understanding the Importance of Adaptability in Personal and Professional Life](chapter-1-1.md)
   - [The Benefits of Learning the Art of Adaptability](chapter-1-2.md)
-  - [Purpose and Scope of the Book](chapter-1-3.md)
 - [Chapter 2: Defining Adaptability](chapter-2.md)
   - [Identifying the Components of Adaptability](chapter-2-1.md)
   - [Recognizing the Connection Between Adaptability and Learning](chapter-2-2.md)
