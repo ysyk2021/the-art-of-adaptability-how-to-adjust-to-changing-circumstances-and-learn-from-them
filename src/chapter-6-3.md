@@ -1,5 +1,3 @@
-Using Adaptability for Community Involvement and Social Justice
-==========================================================================
 
 In this chapter, we will explore the role of adaptability in community involvement and social justice. We will discuss how adapting to changing circumstances can enable individuals to make a positive impact, promote equality, and contribute to social change.
 

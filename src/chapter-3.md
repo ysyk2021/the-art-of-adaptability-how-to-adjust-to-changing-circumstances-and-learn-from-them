@@ -1,5 +1,3 @@
-Chapter 3: Strategies for Building Adaptability Skills
-======================================================
 
 Adaptability is a crucial skill in today's rapidly changing world. In this chapter, we will discuss some effective strategies to build adaptability skills.
 
